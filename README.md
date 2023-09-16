@@ -1,6 +1,10 @@
-### Wellness Engineering
+## Wellness Engineering
 
 As the teachers of old would say: know thyself.
+
+### WHOAMI
+
+✨Currently gazing at beauty, sorry, can't take your call atm
 
 ### Hear me out
 
