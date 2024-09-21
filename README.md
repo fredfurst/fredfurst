@@ -1,3 +1,9 @@
+# Mens Sana in Corpore Sano
+
+We are, indeed, minds within bodies. Contained within a machinery of organs and living tissue.
+
+Check out some of my [stuff](http://fredfurst.github.io)!
+
 ## Wellness Engineering
 
 As the teachers of old would say: know thyself.
